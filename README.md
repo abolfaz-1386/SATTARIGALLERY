@@ -1,2 +1,2 @@
-# SATTARIGALLERY
+# SATTARIGALLE
 راه های ارتباطی
